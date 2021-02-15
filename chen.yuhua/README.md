@@ -1,8 +1,8 @@
-# Hamilton Cline
+# Yuhua Chen
 
 ## Animal Tracker
 
 ### Important Links
 
-- https://hdraws.com
-- https://hdraws.com/aau/wnm617/cline.hamilton
+- http://yuhua1024.com
+- http://yuhua1024.com/aau/wnm617/chen.yuhua
